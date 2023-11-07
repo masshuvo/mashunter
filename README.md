@@ -18,7 +18,7 @@
 
 - 📝 I regularly make Content [https://www.youtube.com/@masshuvo](https://www.youtube.com/@masshuvo)
 
-- 💬 Ask me about **T.me/masshuvo**
+- 💬 Ask me about **t.me/@masshunterbot**
 
 - 📫 How to reach me **mdabubakar.mail.bd@gmail.com**
 
